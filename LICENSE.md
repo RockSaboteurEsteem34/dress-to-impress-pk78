@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Scripts premium is the best jump to steal lucky blocks Script, featuring auto-heal and instant win. Safe and powerful for
 
 
 
